@@ -19,4 +19,4 @@ Communication Science graduate with experience in content, research, and digital
 - Email: mcesar.rivaldo43@gmail.com
 
 ---
-<sub>Open to data analyst / BI opportunities.</sub># Cesar-Rivaldo
+<sub>Open to data analyst / BI opportunities.</sub>
